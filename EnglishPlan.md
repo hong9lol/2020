@@ -2,9 +2,9 @@
 
 ## January
 ### briefly up until 10th 
-    - Took classes of how we English (one chapter per day)
-    - Telephton OPIC Eng class 
-    - Whatching Friends, we bare bears
+    - Took how we English classes (one chapter per day)
+    - Telephone OPIC Eng class 
+    - Watching Friends, We bare bears
 
 ### 11th
     - 
