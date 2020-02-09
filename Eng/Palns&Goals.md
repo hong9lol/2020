@@ -9,10 +9,18 @@
 
 ### January Plans
 
-- Finish all chapters of "How we Eng Red"
+- Finish all chapters of "How we Eng Blue & Red"
 - Take Opic telephone Class
 - Conquer Friends Season2 Episode 1, 2
 
 ### Done List
 
-- ...
+- Finished all chapters of "How we Eng Red"
+- Took Opic telephone Class
+- Conquered only Friends Season1 Episode 1
+
+### Feburary Plans
+
+- Opic Study and take a exam
+- Conquer Friends Season1 Episode 1, Season2 Episode
+- Make mp3 Eng files with TTS for studying by myself
